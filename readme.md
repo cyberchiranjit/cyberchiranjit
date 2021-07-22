@@ -5,7 +5,7 @@
 
 
 
-## I'm an Ethical Hacker and Pentester 
+## Pentester :>
 
 - 🛡️ Open for any project 
 
